@@ -5,9 +5,9 @@ Loves **people** 🤗, **business** 🤝, **tech** 🦾, and touching **grass** 
 | ❓ | 💬 |
 |:---|:--|
 | 📍 | Cincinnati, OH 🐅 → Nashville, TN 🤠 |
-| 🌎 | 🇺🇸 🇲🇽 🇨🇴 🇮🇳 🇦🇺 🇨🇷 🇯🇲 🇹🇨 |
+| 🌎 | 🇺🇸 🇵🇷 🇨🇦 🇲🇽 🇨🇴 🇮🇳 🇦🇺 🇨🇷 🇯🇲 🇹🇨 🇩🇴 |
 | 💻 | 🍎 🐧 |
-| 👨‍💼 | Co-founder → IC → Manager → Director → Principal |
+| 👨‍💼 | Co-founder → Engineer → Lead/Manager → Director → Principal |
 | 🥳 | Reading 📚📖, Writing 📓✍️, Ballroom 💃🕺, Building 💥🔨, Camping 🔥🌭 |
 
 Hey friend, I'm on your team. 🤘😎
